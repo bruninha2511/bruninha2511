@@ -1,4 +1,4 @@
-<img src="https://user-images.githubusercontent.com/116039567/197641369-2f06a720-ca89-4e7c-b322-2b14a53e023f.png" width="500px" />
+
 
 ### Olá! Prazer em te conhecer! ❤️
 
