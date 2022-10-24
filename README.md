@@ -1,6 +1,5 @@
-### Hi there 👋
+### Olá! Prazer em te conhecer! ❤️
 
-<!--
 **bruninha2511/bruninha2511** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
